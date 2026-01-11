@@ -8,7 +8,7 @@
 + Вопросов больше нету если хочешь добавить вопросов в этот листик askerkhanov.08@mail.ru
 +
 + Желаю удачи в игре!
-ENG:
++ ENG:
 + Hello!
 + It looks like you've chosen my mini-game, but at least there's an app.
 + So it looks like you chose my game right away, I'm saying something about space.
